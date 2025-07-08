@@ -1,2 +1,1 @@
-![Alt Text](https://cdn.discordapp.com/attachments/1391186677195866186/1392253190103109755/Untitled537_20250705122327.png?ex=686edc53&is=686d8ad3&hm=8921713f27f578537bebeeaa07771d58d80bc5e3ff99b45ecda354c68f5566ed&)
-![AltText](https://cdn.discordapp.com/attachments/1391186677195866186/1392255991395123280/Untitled565_20250708152756.png?ex=686edeef&is=686d8d6f&hm=0e53001acaa4d041686780ba38941d21ab3c582f0b8e25bd1773a35dfb6a6937&)
+![Alt Text](https://cdn.discordapp.com/attachments/1391186677195866186/1392256397382778940/sinclairemartinpoll-date-everything-icon.png?ex=686edf50&is=686d8dd0&hm=7baa1000a00182cf2f3c48580edfb34a51a6fe712f0f6882f3c2012a56b6e2e2&)
