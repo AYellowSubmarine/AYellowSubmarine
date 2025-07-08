@@ -1,1 +1,1 @@
-![Alt Text](https://res.cloudinary.com/dtjjgiitl/image/upload/q_auto:good,f_auto,fl_progressive/v1752009842/r6jishosrh1is7vwq4ka.jpg)
+![Alt Text](https://cdn.discordapp.com/attachments/1391186677195866186/1392253190103109755/Untitled537_20250705122327.png?ex=686edc53&is=686d8ad3&hm=8921713f27f578537bebeeaa07771d58d80bc5e3ff99b45ecda354c68f5566ed&)
